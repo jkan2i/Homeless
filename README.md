@@ -9,6 +9,6 @@
 
 A curated list of some specific countries displaying their homeless infographics and the steps taken by their goverments to eliminate the issue.
 
-Being Homeless is not a choice but a curse which these people have to live everyday.endure
+Being Homeless is not a choice but a curse which these people have to endure everyday.
 
 
